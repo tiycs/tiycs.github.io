@@ -3,7 +3,7 @@
 
 ---
 **About**  
-TIYCS is an independent artist, guitarist, and explorer blending diverse musical styles into evolving soundscapes. Driven by experimentation, TIYCS combines live instruments and creative mixing to craft fresh, experimental music.
+TIYCS is an independent artist blending diverse musical styles into evolving soundscapes. Driven by experimentation, TIYCS combines live instruments and creative mixing to craft fresh, experimental music.
 
 ---
 ## Contact  
